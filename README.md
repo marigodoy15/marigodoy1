@@ -1,1 +1,4 @@
-# marigodoy1
+-__Bem vindos ao meu perfil!-__
+-Meu nome é:Mariana Gabriely Godoy da Costa
+-Sou aluno do colegio Estadual Alvino Schelbauer
+-Aluna da 1º série A 
